@@ -1,4 +1,7 @@
 Name : Pierre Jabali
-D130222ER-קבוצה/כיתה: מורחב פיתוח דוטנט ערב  אונליין
+
+
+קבוצה/כיתה: מורחב פיתוח דוטנט ערב  אונליין D130222ER- 
 Phone Number : 0524466016
+
 email : pierro2003.pj@gmail.com
